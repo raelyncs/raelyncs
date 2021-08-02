@@ -1,3 +1,5 @@
+### Hi All,
+
 Welcome to my profile! I am a software engineer that loves playing, coaching, and officiating basketball in my spare time. Thanks for visiting and I'd love to [connect](https://www.linkedin.com/in/raelyncs/)!
 
 <!---
